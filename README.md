@@ -3,7 +3,7 @@
 
 # this is my ponytown introduction lalala
 
-<div class="tenor-gif-embed" data-postid="15188618856970726532" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/sword-phighting-phighting-sword-phighting-pet-petpet-gif-15188618856970726532">Sword Phighting Phighting Sword Sticker</a>from <a href="https://tenor.com/search/sword+phighting-stickers">Sword Phighting Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+https://tenor.com/uz3XZXME4Wd.gif
 
 ### hello , i go by ender or sword !
 
