@@ -1,15 +1,17 @@
 
 ![pet-pet-petpet](https://github.com/user-attachments/assets/6ad1ed1d-31c5-4cf1-a346-c863107a645b)
 
-# ★ 𝙏𝙞𝙢𝙚 𝙩𝙤 𝙞𝙣𝙩𝙧𝙤𝙙𝙪𝙘𝙚 𝙢𝙮𝙨𝙚𝙡𝙛 ! ★ ![0c2795476a8e43ed08537a1682c3d78abd8f5e63](https://github.com/user-attachments/assets/fae28f5c-77c7-414d-b076-e271f7c7c8fe)
+# this is my ponytown introduction lalala
 
-![divider-rainbow](https://github.com/user-attachments/assets/ae152cde-78c2-42be-a145-72ddf3237790)
+<div class="tenor-gif-embed" data-postid="15188618856970726532" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/sword-phighting-phighting-sword-phighting-pet-petpet-gif-15188618856970726532">Sword Phighting Phighting Sword Sticker</a>from <a href="https://tenor.com/search/sword+phighting-stickers">Sword Phighting Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
-### <ins> hellooo!! im sprout! (used to be known as cosmo or greg for those who met me a year ago) <ins>
+### hello , i go by ender or sword !
 
-they/them pls..... oomfs can call me he/him idfc
+he / him , they / them 
+neutrois ( masc )
 
-adhd + autism, I TEND TO YAP ALOT!!! pls be patient w/ me
+i struggle with bpd , bipolar , adhd , and various other disorders
+if this bothers you , hide me or ignore me
 
 ![divider-yeah](https://github.com/user-attachments/assets/f7e9aa46-ba17-47d3-b4a9-a6a9694cf256)
 
