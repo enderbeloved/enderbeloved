@@ -3,7 +3,7 @@
 
 # this is my ponytown introduction lalala
 
-[divider](https://tenor.com/uz3XZXME4Wd.gif)
+[divider](<div class="tenor-gif-embed" data-postid="17136598688217659155" data-share-method="host" data-aspect-ratio="16.9" data-width="100%"><a href="https://tenor.com/view/rainbow-divider-cute-stars-discord-gif-17136598688217659155">Rainbow Divider GIF</a>from <a href="https://tenor.com/search/rainbow-gifs">Rainbow GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
 
 ### hello , i go by ender or sword !
 
