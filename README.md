@@ -3,7 +3,7 @@
 
 # this is my ponytown introduction lalala
 
-https://tenor.com/uz3XZXME4Wd.gif
+[divider](https://tenor.com/uz3XZXME4Wd.gif)
 
 ### hello , i go by ender or sword !
 
