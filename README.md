@@ -1,39 +1,34 @@
 
-![pet-pet-petpet](https://github.com/user-attachments/assets/6ad1ed1d-31c5-4cf1-a346-c863107a645b)
 
 # this is my ponytown introduction lalala
 
-[divider](<div class="tenor-gif-embed" data-postid="17136598688217659155" data-share-method="host" data-aspect-ratio="16.9" data-width="100%"><a href="https://tenor.com/view/rainbow-divider-cute-stars-discord-gif-17136598688217659155">Rainbow Divider GIF</a>from <a href="https://tenor.com/search/rainbow-gifs">Rainbow GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
 
 ### hello , i go by ender or sword !
 
 he / him , they / them 
 neutrois ( masc )
 
+TAKEN . B , 11/22/2025 <3
+
 i struggle with bpd , bipolar , adhd , and various other disorders
-if this bothers you , hide me or ignore me
+if this bothers you , hide me or ignore me , its that simple
 
-![divider-yeah](https://github.com/user-attachments/assets/f7e9aa46-ba17-47d3-b4a9-a6a9694cf256)
+i am a MINOR . pls do not int if you are above 21+ !
 
-avid ashes.town player/roleplayer, roblox enjoyer, VA, artist & beginner voice impressionist
+# ｡𖦹°‧
 
-multifandom fanatic, multishipper and closeted mirrorshipper 💔
+avid ponytown player ! very multifandom , accepting to most ships that are NOT problematic . 
+always open to c+h , PLS int w me bc im a lonely sack of trash that doesnt have many friends 
 
-CEO OF MOONBERRY!!!! im a proud cult member of sprout x astro dont fw me bro
-
-𝙊𝘽𝙎𝙀𝙎𝙎𝙀𝘿 𝙒𝙄𝙏𝙃 𝙋𝙃𝙄𝙂𝙃𝙏𝙄𝙉𝙂, 𝘿𝘼𝙉𝘿𝙔𝙎 𝙒𝙊𝙍𝙇𝘿, 𝙋𝙍𝙀𝙎𝙎𝙐𝙍𝙀, 𝙍𝙀𝙂𝙍𝙀𝙏𝙀𝙑𝘼𝙏𝙊𝙍, 𝙎𝙇𝙀𝙉𝘿𝙔𝙏𝙐𝘽𝘽𝙄𝙀𝙎, 𝙏𝘼𝘿𝘾, 𝙈𝙊𝙐𝙏𝙃𝙒𝘼𝙎𝙃𝙄𝙉𝙂, 𝙐𝙉𝘿𝙀𝙍𝙏𝘼𝙇𝙀 (𝘼𝙐𝙎) 𝘼𝙉𝘿 𝙀𝙋𝙄𝘾 𝙏𝙃𝙀 𝙈𝙐𝙎𝙄𝘾𝘼𝙇!!!
-
-turning 15 in september!! yes, i am a minor. PLS INTERACT WITH ME WITH EXTREME CAUTION!!!
+i am currently hyperfixated with Phighting , Animal Hospital , Mollys Future Mishaps , Slendytubbies , The Nightly Manor , and Objectified
 
 ![divider-aesthetic](https://github.com/user-attachments/assets/eecd552a-56fb-4e5f-a2f7-57b86c8e69b5)
 
-im pretty easy to talk to if you do start a conversation with me lmfao 
+im pretty easy to talk to if you do start a conversation with me , just know i get nervous to talk first let alone int 
 
-i allow c+h all the time unless im roleplaying
+### if you see me running about or by myself , dont be afraid to int !
 
-### 𝘪𝘧 𝘺𝘰𝘶 𝘴𝘦𝘦 𝘮𝘦 𝘳𝘶𝘯𝘯𝘪𝘯𝘨 𝘢𝘳𝘰𝘶𝘯𝘥 𝘢𝘴𝘩𝘦𝘴 𝘵𝘰𝘸𝘯, 𝘥𝘰𝘯𝘵 𝘣𝘦 𝘢𝘧𝘳𝘢𝘪𝘥 𝘵𝘰 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵!!! 𝘥𝘰𝘯𝘵 𝘸𝘰𝘳𝘳𝘺, 𝘪 𝘥𝘰𝘯𝘵 𝘣𝘪𝘵𝘦 𝘭𝘰𝘭
-
-super sigma oomf mentions; pumkin, isaac, tim, elliot, jeffcent, zahrada, ares, and more!!  
+super awesome friend of mine that im often seen around is Neytirix / Mikita ^_^ 
 
 ![divider-aesthetic](https://github.com/user-attachments/assets/0afddf8b-b747-40a8-8a1e-3568197c931a)
 
