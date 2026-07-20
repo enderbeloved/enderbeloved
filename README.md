@@ -5,6 +5,8 @@
 
 ### hello , i go by ender or sword !
 
+![divider-aesthetic](https://github.com/user-attachments/assets/eecd552a-56fb-4e5f-a2f7-57b86c8e69b5)
+
 he / him , they / them 
 neutrois ( masc )
 
